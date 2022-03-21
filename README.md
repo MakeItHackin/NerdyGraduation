@@ -9,7 +9,7 @@ SECRET VIDEO GAME IS REVEALED AFTER FINAL SCREEN OR ACTIVATED BY HOLDING DOWN TH
 
 ## YouTube Demonstration: TBD
 
-## PURCHASE A CARD
+## PURCHASE A CARD:
 https://www.etsy.com/listing/1186708958/  
 https://www.tindie.com/products/26328/
 

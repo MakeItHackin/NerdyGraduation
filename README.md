@@ -7,7 +7,7 @@ Please review the instructions for inserting the battery.
 
 SECRET VIDEO GAME IS REVEALED AFTER FINAL SCREEN OR ACTIVATED BY HOLDING DOWN THE BUTTON WHILE POWERING ON!  
 
-## YouTube Demonstration: TBD
+## YouTube Demonstration: https://youtu.be/m-CHYDJxxGM
 
 ## PURCHASE A CARD:
 https://www.etsy.com/listing/1186708958/  
